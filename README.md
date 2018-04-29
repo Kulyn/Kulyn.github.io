@@ -1,2 +1,0 @@
-# Kulyn.github.io
-disiisi
